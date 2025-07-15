@@ -15,4 +15,4 @@
 
 i'm toooo lazy 2 do anything but hi i luv my girlfriend 🤎 06/09/25
 
-alts: @autofister @lshdon @morningcord
+alts: [@autofister](https://github.com/autofister) [@lshdon](https://github.com/lshdon) [@morningcord](https://github.com/morningcord)
