@@ -13,6 +13,8 @@ hi i luv my girlfriend 🤎 06/09/25
 
 
 i WILL be with my Venus most of the time, she's my sanctuary i luv her sm teehee
+
 u can cuddle with me if i am alone, but if anyone's with me, ask either of us!
+
 i block & hide freely, i do not interact with people who dislike my friends in any way for no reason ^-^
 aaah i love my girlfriend bye
